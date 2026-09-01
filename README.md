@@ -1,2 +1,0 @@
-# demonhubgasaituyo
-でーもんはぶ公開
